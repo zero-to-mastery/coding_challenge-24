@@ -32,5 +32,5 @@ Some of our fellow ZTM members helped create this awesome platform to submit and
 
 ## One Last Thing!
 
-**Please note: As with all my challenges there is zero benefit or monetary gain I recieve from it. This is just my way of thanking my students and making sure that you are able to continue gaining valuable knowledge outside of just my videos. It would mean a lot to me if you are able to rate my course...5 star reviews make my day :)**
+**Please note: As with all my challenges there is zero benefit or monetary gain I receive from it. This is just my way of thanking my students and making sure that you are able to continue gaining valuable knowledge outside of just my videos. It would mean a lot to me if you are able to rate my course...5 star reviews make my day :)**
 
